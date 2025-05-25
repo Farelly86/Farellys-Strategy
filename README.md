@@ -1,0 +1,1 @@
+# Farellys-Strategy
